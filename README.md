@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Novailables
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning termux
+- 📫 How to reach me abhisekpun777yt@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: i am not g@y
+- 
